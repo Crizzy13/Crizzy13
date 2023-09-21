@@ -5,4 +5,4 @@
 - 📫 Eu gosto de Taylor Swift, meu album fav dela é speak now e a minha musica fav é The Archer.
 
 
-![](https://media.tenor.com/IfpG4jlbAzEAAAAC/taylor-swift-taylor-swift-eras-tour.gif)
+![image](https://github.com/Crizzy13/Crizzy13/assets/142502624/acffd526-8770-4e53-91ae-02c1cb5263d0)
