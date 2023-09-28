@@ -1,4 +1,4 @@
-- 👋 Olá,eu sou @Crizzy13!
+- 👋 Olá, eu sou @Crizzy13!
 - 👀 Pretendo colocar links dos meus trabalhos aqui.
 - 🌱 Estou no 1 ano do ensino medio, no momento quero fazer psicologia.
 - 💞️ Gosto de praticar esportes, atualmente estou fazendo vôlei, muay thai e musculação.
