@@ -5,4 +5,4 @@
 - 📫 Eu gosto de Taylor Swift, meu album fav dela é speak now,mas a minha musica fav é Mr.Perfectly Fine
 
 
-![image](https://media.tenor.com/nXZxw9kswYgAAAAd/taylor-swift-speak-now.gif)
+![](https://media.tenor.com/nXZxw9kswYgAAAAd/taylor-swift-speak-now.gif)
